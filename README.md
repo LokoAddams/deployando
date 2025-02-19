@@ -1,1 +1,0 @@
-# Lucas Sebastian Alcoba Cardona
